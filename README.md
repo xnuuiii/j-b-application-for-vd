@@ -3,3 +3,5 @@ halooo xnuui here
 
 oh  yea i put everything there (even all the junk) i guess u can sort it out... h
 atleast what i found
+
+also read the descs i put some stuff there
